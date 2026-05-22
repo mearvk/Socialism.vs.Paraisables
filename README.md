@@ -35,3 +35,5 @@ Does Socialism stop and Prevent money and Social-Engineering failures and likes 
 Did we Balance Well Choosing our Reals before the Required Sustains of Social Engineering and Social Sciences or do We Become Ill from Failing as ourns of Treatments
 
 Do we Treat Connectedness and Same and Same and the working Universe - do We excite to Record Revenues of INT and capacsciousHouses - do wer Were aM AM
+
+At 8PM are We all Attorneys
