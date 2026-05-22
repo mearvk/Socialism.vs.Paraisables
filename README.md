@@ -10,6 +10,8 @@
 
 **Salvance:** The Work records that Guarantees seams _M records at or At work Records as solvent and continuencement
 
+**Socialism:** That Social Guarantees are Whole and Bone and thereforethereof that words means dominianceiamainism
+
 In the Generalism Case Do We Guarantee:
 
 That Treatment of Aspect is BiPolar and All Guarantees
