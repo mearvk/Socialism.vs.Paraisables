@@ -2,6 +2,8 @@
 
 **Did Management Guarantee any Aspect or Did Your Work Record Guarantee You At All Any Aspect**
 
+https://github.com/mearvk/LSAT.Legal.Publications
+
 **Paraisables**: Psychology approaches that do Means we works; that work records guarantees Salvance
 
 **Paraisables**: The Lint guarantee that linear determinisms are _same of Record.s and of S_ame Congruent.s as Of Species
