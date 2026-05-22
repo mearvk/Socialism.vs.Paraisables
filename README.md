@@ -4,6 +4,8 @@
 
 https://github.com/mearvk/LSAT.Legal.Publications
 
+https://github.com/mearvk/USCalendar.Legal.Edition
+
 **Paraisables**: Psychology approaches that do Means we works; that work records guarantees Salvance
 
 **Paraisables**: The Lint guarantee that linear determinisms are _same of Record.s and of S_ame Congruent.s as Of Species
